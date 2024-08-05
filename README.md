@@ -14,7 +14,7 @@ The background color is #ffffff for light mode and #000000 for dark mode.
 
 This channel is for D28's group students to join [Telegram channel](https://t.me/generationd28)
 
-![Guruhim bilan 1-ishimiz.](https://www.investopedia.com/oracle-q3-fy-2024-earnings-preview-860632)
+![Guruhim bilan 1-ishimiz.](https://www.investopedia.com/thmb/Hj1P-xlGWiSIJdan7ZTLDdo-Yag=/750x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1258636884-2855385e7dc8472cb2382bb220aea43b.jpg)
 
 > [!NOTE]
 > Useful information that users should know, even when skimming content.
